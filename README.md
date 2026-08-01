@@ -31,3 +31,4 @@ $$ \color{#c1d9d1}{\text{" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} 
 </p>
 
 <p align="center"></picture> <img width="601" height="21" alt="17856053349266241088320515150136" src="https://github.com/user-attachments/assets/ac0753fa-cae0-43a8-8233-488672cb06a1" />
+<p align="center"><img width="1280" height="143" alt="17856074679505513523169891917742" src="https://github.com/user-attachments/assets/ed54c66d-d6a5-40f9-9e60-b5c86e6ad4bb" />
