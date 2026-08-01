@@ -17,6 +17,7 @@ $$ \color{#a0a8a8}{\text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$
 
 $$ \color{#c1d9d1}{\text{" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} $$
 
+<p align="center"> <img width="99" height="56" alt="17856043242667143482913240957832" src="https://github.com/user-attachments/assets/7a76eea1-f236-4600-9c39-0de3b0718dfe" />
 
 <p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/f3ad611f-66cd-4fde-aae3-ce66ee066b80" />
 
@@ -26,4 +27,3 @@ $$ \color{#c1d9d1}{\text{" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} 
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zwwu3ahszskspbhvsu2ohfmkqi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
   </a>
 </p>
-<p align="center"> <img width="99" height="56" alt="17856043242667143482913240957832" src="https://github.com/user-attachments/assets/7a76eea1-f236-4600-9c39-0de3b0718dfe" />
