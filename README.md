@@ -1,5 +1,5 @@
 ## ☆
-<p align="center"> <img width="350" height="11" alt="17855953210743038810066480321459" src="https://github.com/user-attachments/assets/56c4bde3-48be-40fe-8445-99e4799bc5d4" />
+<p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/350c1b5f-6d38-4f23-9864-888117a571b2" />
 
 
 $$ \color{#c1d9d1}{\text{ASAP MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
@@ -16,5 +16,6 @@ $$ \color{#a0a8a8}{\text{︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶ }} $$
 $$ \color{#c1d9d1}{\text{" AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} $$
 
 
-<p align="center"> <img width="350" height="11" alt="17855953210743038810066480321459" src="https://github.com/user-attachments/assets/56c4bde3-48be-40fe-8445-99e4799bc5d4" />
+<p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/f3ad611f-66cd-4fde-aae3-ce66ee066b80" />
+
 
