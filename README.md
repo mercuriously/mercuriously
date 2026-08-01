@@ -17,7 +17,8 @@ $$ \color{#a0a8a8}{\text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$
 
 $$ \color{#c1d9d1}{\text{" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} $$
 
-<p align="center"> <img width="99" height="56" alt="17856043242667143482913240957832" src="https://github.com/user-attachments/assets/7a76eea1-f236-4600-9c39-0de3b0718dfe" /> <img width="99" height="56" alt="17856049123102148977321443580996" src="https://github.com/user-attachments/assets/ec1b762e-c7a1-46d6-9d2b-04ece871ac7e" />
+<p align="center"> <img width="99" height="56" alt="17856043242667143482913240957832" src="https://github.com/user-attachments/assets/7a76eea1-f236-4600-9c39-0de3b0718dfe" /> <img width="99" height="56" alt="17856049123102148977321443580996" src="https://github.com/user-attachments/assets/ec1b762e-c7a1-46d6-9d2b-04ece871ac7e" /> <img width="99" height="56" alt="17856050944953684810951245006985" src="https://github.com/user-attachments/assets/3fe339b1-f0b0-48d2-86e3-fd416b0c5e29" />
+
 
 
 <p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/f3ad611f-66cd-4fde-aae3-ce66ee066b80" />
