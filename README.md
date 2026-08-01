@@ -1,4 +1,7 @@
-## A$AP MERCURY UPTOWN!! 
+## ☆
+$$ \color{#c1d9d1}{\text{ASAP MERCURY UPTOWN}} $$
+<p align="center"> <img width="459" height="25" alt="17855938665313935231152478461662" src="https://github.com/user-attachments/assets/d9199b44-dffa-4383-920d-739603df35bb" />
+
 $$ \color{#c1d9d1}{\text{SHE × HE . INFO IN STRAW . IWC}} $$ 
                                                             
 
