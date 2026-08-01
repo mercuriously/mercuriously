@@ -1,5 +1,5 @@
 ## ☆
-<picture> <img width="1000" height="400" alt="17856133304353976311841718850057" src="https://github.com/user-attachments/assets/9d68dcdc-d0b1-43ad-b792-ecce15d00c91" />
+<picture> <img width="1280" height="143" alt="17856074679505513523169891917742" src="https://github.com/user-attachments/assets/ed54c66d-d6a5-40f9-9e60-b5c86e6ad4bb" />
 
 <p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/350c1b5f-6d38-4f23-9864-888117a571b2" />
 
@@ -31,4 +31,4 @@ $$ \color{#c1d9d1}{\text{" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} 
 </p>
 
 <p align="center"></picture> <img width="601" height="21" alt="17856053349266241088320515150136" src="https://github.com/user-attachments/assets/ac0753fa-cae0-43a8-8233-488672cb06a1" />
-<p align="center"><img width="1280" height="143" alt="17856074679505513523169891917742" src="https://github.com/user-attachments/assets/ed54c66d-d6a5-40f9-9e60-b5c86e6ad4bb" />
+<picture><img width="1080" height="544" alt="17856136067364939445872926892845" src="https://github.com/user-attachments/assets/994f3a83-2660-43da-b398-faa79f6ac484" />
