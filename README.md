@@ -1,6 +1,9 @@
 ## ☆
+<p align="center"> <img width="385" height="29" alt="17855940018867033244064665269546" src="https://github.com/user-attachments/assets/865b33c0-0737-4279-8c75-865f7d30aaf1" />
+
 $$ \color{#c1d9d1}{\text{ASAP MERCURY UPTOWN}} $$
-<p align="center"> <img width="459" height="25" alt="17855938665313935231152478461662" src="https://github.com/user-attachments/assets/d9199b44-dffa-4383-920d-739603df35bb" />
+
+
 
 $$ \color{#c1d9d1}{\text{SHE × HE . INFO IN STRAW . IWC}} $$ 
                                                             
