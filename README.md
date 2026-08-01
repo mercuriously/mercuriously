@@ -5,18 +5,18 @@
 <p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/350c1b5f-6d38-4f23-9864-888117a571b2" />
 
 
-$$ \color{#c1d9d1}{\text{ASAP MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
+$$ \color{#c1d9d1}{\huge \text{ASAP MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
 
 
 
-$$ \color{#d1cec0}{\text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
+$$ \color{#d1cec0}{\huge \text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
 
-$$ \color{#a0a8a8}{\text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$ 
+$$ \color{#a0a8a8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$ 
 
 
  <p align="center"> <img width="374" height="281" alt="17855936012198471278148965497902" src="https://github.com/user-attachments/assets/ea4fc4d5-52a8-43e9-8d0a-659bef92f685" />
 
-$$ \color{#c1d9d1}{\text{" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} $$
+$$ \color{#c1d9d1}{\huge \text {" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} $$
 
 <p align="center"> <img width="99" height="56" alt="17856043242667143482913240957832" src="https://github.com/user-attachments/assets/7a76eea1-f236-4600-9c39-0de3b0718dfe" /> <img width="99" height="56" alt="17856049123102148977321443580996" src="https://github.com/user-attachments/assets/ec1b762e-c7a1-46d6-9d2b-04ece871ac7e" /> <img width="99" height="56" alt="17856050944953684810951245006985" src="https://github.com/user-attachments/assets/3fe339b1-f0b0-48d2-86e3-fd416b0c5e29" />
 
