@@ -6,7 +6,7 @@ $$ \color{#c1d9d1}{\text{ASAP MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
 
 
 
-$$ \color{#c9bfb3}{\text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
+$$ \color{#d1cec0}{\text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
 
 $$ \color{#a0a8a8}{\text{︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶ }} $$ 
 
