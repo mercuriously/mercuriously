@@ -44,5 +44,5 @@ $$ \color{#d4d4d4}{\huge \text {" TELL THE DJ GO AND RUN THAT ! " ✮⋆˙ }} $$
 </p>
 
 <p align="center"></picture> <img width="601" height="21" alt="17856053349266241088320515150136" src="https://github.com/user-attachments/assets/ac0753fa-cae0-43a8-8233-488672cb06a1" />
-<picture><img width="1280" height="143" alt="image" src="https://github.com/user-attachments/assets/9382eca6-b27b-4097-a849-e5b374a3070b" />
 
+<picture><img width="1155" height="162" alt="image" src="https://github.com/user-attachments/assets/259e97f0-37b3-46f0-b61d-832cd59963ff" />
