@@ -44,4 +44,5 @@ $$ \color{#d4d4d4}{\huge \text {" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " âœ®â‹
 </p>
 
 <p align="center"></picture> <img width="601" height="21" alt="17856053349266241088320515150136" src="https://github.com/user-attachments/assets/ac0753fa-cae0-43a8-8233-488672cb06a1" />
-<picture><img width="2048" height="169" alt="image" src="https://github.com/user-attachments/assets/dbc48a35-4965-42a1-a347-b21c1054a651" />
+<picture><img width="1280" height="143" alt="image" src="https://github.com/user-attachments/assets/9382eca6-b27b-4097-a849-e5b374a3070b" />
+
