@@ -24,7 +24,7 @@ $$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$
 
 
 
-$$ \color{#d4d4d4}{\huge \text {" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} $$
+$$ \color{#d4d4d4}{\huge \text {" TELL THE DJ GO AND RUN THAT ! " ✮⋆˙ }} $$
 
 <p align="center"> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8a91c45d-7f19-42d0-b61e-4ce3169b1fe8" />
  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f39a5bf3-2ecf-4fb4-9a3f-6daa1af75345" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/dec2e9c5-f814-4e3b-bc8d-99cd2c392b99" />
