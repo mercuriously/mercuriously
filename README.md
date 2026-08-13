@@ -1,5 +1,8 @@
 ## ☆
-<picture><img width="2048" height="192" alt="image" src="https://github.com/user-attachments/assets/b88a7960-276d-4353-9798-a18d051af69e" />
+<picture><img width="1280" height="166" alt="image" src="https://github.com/user-attachments/assets/e005a46c-e5d9-4f73-966e-8e4dbb913d18" />
+
+
+
 
 
 
@@ -16,7 +19,9 @@ $$ \color{#808080}{\huge \text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
 $$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$ 
 
 
- <p align="center"> <img width="498" height="281" alt="image" src="https://github.com/user-attachments/assets/446a85b7-05a2-4578-869a-c34d50974ba9" />
+ <p align="center"> <img width="592" height="333" alt="image" src="https://github.com/user-attachments/assets/13e4895c-e0e3-466a-a236-fdde260dd1c0" />
+
+
 
 
 $$ \color{#d4d4d4}{\huge \text {" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} $$
