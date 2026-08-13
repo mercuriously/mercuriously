@@ -14,7 +14,7 @@ $$ \color{#b8b8b8}{\huge \text{ASAP MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
 
 
 
-$$ \color{#808080}{\huge \text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
+$$ \color{#969393}{\huge \text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
 
 $$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$ 
 
