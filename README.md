@@ -1,24 +1,31 @@
 ## ☆
-<picture><img width="2048" height="163" alt="17856143909061477006915048491674" src="https://github.com/user-attachments/assets/061ba677-edf9-4e8e-b284-6051cfb4a673" />
+<picture><img width="2048" height="192" alt="image" src="https://github.com/user-attachments/assets/b88a7960-276d-4353-9798-a18d051af69e" />
+
+
 
 
 <p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/350c1b5f-6d38-4f23-9864-888117a571b2" />
 
 
-$$ \color{#c1d9d1}{\huge \text{ASAP MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
+$$ \color{#b8b8b8}{\huge \text{ASAP MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
 
 
 
-$$ \color{#d1cec0}{\huge \text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
+$$ \color{#808080}{\huge \text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
 
-$$ \color{#a0a8a8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$ 
+$$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$ 
 
 
- <p align="center"> <img width="374" height="281" alt="17855936012198471278148965497902" src="https://github.com/user-attachments/assets/ea4fc4d5-52a8-43e9-8d0a-659bef92f685" />
+ <p align="center"> <img width="498" height="281" alt="image" src="https://github.com/user-attachments/assets/446a85b7-05a2-4578-869a-c34d50974ba9" />
 
-$$ \color{#c1d9d1}{\huge \text {" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} $$
 
-<p align="center"> <img width="99" height="56" alt="17856043242667143482913240957832" src="https://github.com/user-attachments/assets/7a76eea1-f236-4600-9c39-0de3b0718dfe" /> <img width="99" height="56" alt="17856049123102148977321443580996" src="https://github.com/user-attachments/assets/ec1b762e-c7a1-46d6-9d2b-04ece871ac7e" /> <img width="99" height="56" alt="17856050944953684810951245006985" src="https://github.com/user-attachments/assets/3fe339b1-f0b0-48d2-86e3-fd416b0c5e29" />
+$$ \color{#d4d4d4}{\huge \text {" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮⋆˙ }} $$
+
+<p align="center"> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8a91c45d-7f19-42d0-b61e-4ce3169b1fe8" />
+ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f39a5bf3-2ecf-4fb4-9a3f-6daa1af75345" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/dec2e9c5-f814-4e3b-bc8d-99cd2c392b99" />
+
+
+
 
 
 
@@ -32,4 +39,4 @@ $$ \color{#c1d9d1}{\huge \text {" AYY AYY PLAYER ! LET ME SEE THAT ICE ! " ✮�
 </p>
 
 <p align="center"></picture> <img width="601" height="21" alt="17856053349266241088320515150136" src="https://github.com/user-attachments/assets/ac0753fa-cae0-43a8-8233-488672cb06a1" />
-<picture><img width="1280" height="143" alt="17856074679505513523169891917742" src="https://github.com/user-attachments/assets/ed54c66d-d6a5-40f9-9e60-b5c86e6ad4bb" />
+<picture><img width="2048" height="169" alt="image" src="https://github.com/user-attachments/assets/dbc48a35-4965-42a1-a347-b21c1054a651" />
