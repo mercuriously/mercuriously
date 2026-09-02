@@ -38,10 +38,8 @@ $$ \color{#d4d4d4}{\huge \text {" TELL THE DJ GO AND RUN THAT ! " ✮⋆˙ }} $$
 
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zwwu3ahszskspbhvsu2ohfmkqi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
-  </a>
-</p>
+ 
+  
 
 <p align="center"></picture> <img width="601" height="21" alt="17856053349266241088320515150136" src="https://github.com/user-attachments/assets/ac0753fa-cae0-43a8-8233-488672cb06a1" />
 
