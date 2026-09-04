@@ -13,7 +13,7 @@
 <p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/350c1b5f-6d38-4f23-9864-888117a571b2" />
 
 
-$$ \color{#b8b8b8}{\huge \text{ASAP MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
+$$ \color{#b8b8b8}{\huge \text{MF MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
 
 
 
