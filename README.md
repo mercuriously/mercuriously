@@ -1,5 +1,8 @@
 ## ☆
-<picture><img width="1280" height="166" alt="image" src="https://github.com/user-attachments/assets/e005a46c-e5d9-4f73-966e-8e4dbb913d18" />
+<picture><img width="1280" height="107" alt="image" src="https://github.com/user-attachments/assets/b468a364-c060-4e26-9f6f-f2d7b0173a4c" />
+
+
+
 
 
 
@@ -14,20 +17,31 @@ $$ \color{#b8b8b8}{\huge \text{ASAP MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
 
 
 
-$$ \color{#968c8c}{\huge \text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
+$$ \color{#5d7038}{\huge \text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
 
 $$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$ 
 
 
- <p align="center"> <img width="592" height="333" alt="image" src="https://github.com/user-attachments/assets/13e4895c-e0e3-466a-a236-fdde260dd1c0" />
+ <p align="center"> <img width="516" height="387" alt="image" src="https://github.com/user-attachments/assets/c5f2dfca-6616-4f9d-bacd-280d3f332912" />
 
 
 
 
-$$ \color{#d4d4d4}{\huge \text {" TELL THE DJ GO AND RUN THAT ! " ✮⋆˙ }} $$
 
-<p align="center"> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8a91c45d-7f19-42d0-b61e-4ce3169b1fe8" />
- <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f39a5bf3-2ecf-4fb4-9a3f-6daa1af75345" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/dec2e9c5-f814-4e3b-bc8d-99cd2c392b99" />
+
+
+$$ \color{#9c9191}{\huge \text {" I SELL RHYMES LIKE DIMES  ! " ✮⋆˙ }} $$
+
+<p align="center"> <img width="131" height="75" alt="image" src="https://github.com/user-attachments/assets/0f900640-4094-4c12-a11d-1c0563c85934" />
+<img width="131" height="75" alt="image" src="https://github.com/user-attachments/assets/c48a152d-acab-4c00-813f-8583a3346c4b" />
+
+
+ <img width="131" height="75" alt="image" src="https://github.com/user-attachments/assets/31dd32a8-3069-4288-b38c-b5bc7077edc7" />
+
+
+
+
+
 
 
 
@@ -41,6 +55,7 @@ $$ \color{#d4d4d4}{\huge \text {" TELL THE DJ GO AND RUN THAT ! " ✮⋆˙ }} $$
  
   
 
-<p align="center"></picture> <img width="601" height="21" alt="17856053349266241088320515150136" src="https://github.com/user-attachments/assets/ac0753fa-cae0-43a8-8233-488672cb06a1" />
+<picture><img width="900" height="100" alt="image" src="https://github.com/user-attachments/assets/668e195e-9235-4e09-aba5-c9b87e33f4b3" />
+
 
 <picture><img width="1155" height="162" alt="image" src="https://github.com/user-attachments/assets/259e97f0-37b3-46f0-b61d-832cd59963ff" />
