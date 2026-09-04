@@ -30,7 +30,7 @@ $$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$
 
 
 
-$$ \color{#786431}{\huge \text {" AYO YO , YALL CANT STAND RIGHT HERE  ! " ✮⋆˙ }} $$
+$$ \color{#b5a47b}{\huge \text {" AYO YO , YALL CANT STAND RIGHT HERE  ! " ✮⋆˙ }} $$
 
 <p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b1c5b88f-08be-4769-bef4-fffe4e4bf185" />
 <img width="131" height="75" alt="image" src="https://github.com/user-attachments/assets/a59c4ec0-924a-4dcf-b075-fac8246060b8" />
