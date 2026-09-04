@@ -30,9 +30,12 @@ $$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$
 
 
 
-$$ \color{#9c9191}{\huge \text {" I SELL RHYMES LIKE DIMES  ! " ✮⋆˙ }} $$
+$$ \color{#786431}{\huge \text {" AYO YO , YALL CANT STAND RIGHT HERE  ! " ✮⋆˙ }} $$
 
-<p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0cca59f8-99e0-4d81-8019-3a68228254cd" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b077faaa-dd0b-4d3f-88d5-ef58cfd18b38" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fdd791e3-dba7-434a-bd1f-7dac5d41efdb" />
+<p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0cca59f8-99e0-4d81-8019-3a68228254cd" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b78dae6f-117d-466c-8b33-497b6e0e8c2c" /> <img width="97" height="54" alt="image" src="https://github.com/user-attachments/assets/75a4d4b2-d3ae-4176-8cde-af1667d49d8f" />
+
+
+
 
 
 
