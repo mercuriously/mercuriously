@@ -32,11 +32,11 @@ $$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$
 
 $$ \color{#9c9191}{\huge \text {" I SELL RHYMES LIKE DIMES  ! " ✮⋆˙ }} $$
 
-<p align="center"> <img width="131" height="75" alt="image" src="https://github.com/user-attachments/assets/0f900640-4094-4c12-a11d-1c0563c85934" />
-<img width="131" height="75" alt="image" src="https://github.com/user-attachments/assets/c48a152d-acab-4c00-813f-8583a3346c4b" />
+<p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0cca59f8-99e0-4d81-8019-3a68228254cd" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b077faaa-dd0b-4d3f-88d5-ef58cfd18b38" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fdd791e3-dba7-434a-bd1f-7dac5d41efdb" />
 
 
- <img width="131" height="75" alt="image" src="https://github.com/user-attachments/assets/31dd32a8-3069-4288-b38c-b5bc7077edc7" />
+
+
 
 
 
