@@ -32,7 +32,8 @@ $$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$
 
 $$ \color{#786431}{\huge \text {" AYO YO , YALL CANT STAND RIGHT HERE  ! " ✮⋆˙ }} $$
 
-<p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0cca59f8-99e0-4d81-8019-3a68228254cd" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b78dae6f-117d-466c-8b33-497b6e0e8c2c" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e2c06bc7-cbd7-4d76-be21-df013c6ae1cf" />
+<p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b1c5b88f-08be-4769-bef4-fffe4e4bf185" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b78dae6f-117d-466c-8b33-497b6e0e8c2c" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e2c06bc7-cbd7-4d76-be21-df013c6ae1cf" />
 
 
 
