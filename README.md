@@ -13,13 +13,13 @@
 <p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/350c1b5f-6d38-4f23-9864-888117a571b2" />
 
 
-$$ \color{#b8b8b8}{\huge \text{MF MERCURY UPTOWN ⊹ ࣪ ˖ }} $$
+$$ \color{#b8b8b8}{\huge \text{METAL FACE MERCURY ⊹ ࣪ ˖ }} $$
 
 
 
-$$ \color{#5d7038}{\huge \text{SHE × HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
+$$ \color{#5d7038}{\huge \text{SHE / HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
 
-$$ \color{#b8b8b8}{ \huge \text{-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆-}} $$ 
+$$ \color{#e3dbb6}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
 
  <p align="center"> <img width="516" height="387" alt="image" src="https://github.com/user-attachments/assets/c5f2dfca-6616-4f9d-bacd-280d3f332912" />
