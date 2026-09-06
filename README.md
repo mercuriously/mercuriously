@@ -13,11 +13,11 @@
 <p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/350c1b5f-6d38-4f23-9864-888117a571b2" />
 
 
-$$ \color{#b8b8b8}{\huge \text{METAL FACE MERCURY ⊹ ࣪ ˖ }} $$
+$$ \color{#b8b8b8}{\huge \text{𝐌𝐄𝐓𝐀𝐋 𝐅𝐀𝐂𝐄 𝐌𝐄𝐑𝐂𝐔𝐑𝐘 ⊹ ࣪}} $$
 
 
 
-$$ \color{#5d7038}{\huge \text{SHE / HE . INFO IN STRAW . IWC ⭑.ᐟ }} $$
+$$ \color{#5d7038}{\huge \text{𝐒𝐇𝐄 / 𝐇𝐄 . 𝚰𝐍𝐅𝐎 𝚰𝐍 𝐒𝐓𝐑𝐀𝐖 . 𝚰𝐖𝐂 ⭑.ᐟ }} $$
 
 $$ \color{#e3dbb6}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
@@ -30,7 +30,7 @@ $$ \color{#e3dbb6}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-$$ \color{#b5a47b}{\huge \text {" AYO YO , YALL CANT STAND RIGHT HERE  ! " ✮⋆˙ }} $$
+$$ \color{#b5a47b}{\huge \text {" 𝐀𝐘𝐎 𝐘𝐎 , 𝐘𝐀𝐋𝐋 𝐂𝐀𝐍𝐓 𝐒𝐓𝐀𝐍𝐃 𝐑𝚰𝐆𝐇𝐓 𝐇𝐄𝐑𝐄  ! " ✮⋆˙ }} $$
 
 <p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b1c5b88f-08be-4769-bef4-fffe4e4bf185" />
 <img width="131" height="75" alt="image" src="https://github.com/user-attachments/assets/a59c4ec0-924a-4dcf-b075-fac8246060b8" />
