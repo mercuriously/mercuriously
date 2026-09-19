@@ -1,5 +1,8 @@
 ## ☆
-<picture><img width="1280" height="107" alt="image" src="https://github.com/user-attachments/assets/b468a364-c060-4e26-9f6f-f2d7b0173a4c" />
+<picture><img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/14d3a04c-e255-4991-904f-c526319df80d" />
+
+
+
 
 
 
@@ -13,28 +16,35 @@
 <p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/350c1b5f-6d38-4f23-9864-888117a571b2" />
 
 
-$$ \color{#b8b8b8}{\huge \text{𝐌𝐄𝐓𝐀𝐋 𝐅𝐀𝐂𝐄 𝐌𝐄𝐑𝐂𝐔𝐑𝐘 ⊹ ࣪}} $$
+$$ \color{#b8b8b8}{\huge \text{𝐌𝐄𝐑𝐂𝐔𝐑𝐈𝐎𝐔𝐒𝐋𝐘 ☆ ⊹ ࣪}} $$
 
 
 
-$$ \color{#5d7038}{\huge \text{𝐒𝐇𝐄 / 𝐇𝐄 . 𝚰𝐍𝐅𝐎 𝚰𝐍 𝐒𝐓𝐑𝐀𝐖 . 𝚰𝐖𝐂 ⭑.ᐟ }} $$
+$$ \color{#666666}{\huge \text{𝐒𝐇𝐄 / 𝐇𝐄 . 𝚰𝐍𝐅𝐎 𝚰𝐍 𝐒𝐓𝐑𝐀𝐖 . 𝚰𝐖𝐂 ⭑.ᐟ }} $$
 
-$$ \color{#e3dbb6}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
-
-
- <p align="center"> <img width="516" height="387" alt="image" src="https://github.com/user-attachments/assets/c5f2dfca-6616-4f9d-bacd-280d3f332912" />
+$$ \color{#e8e8e8}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
 
+ <p align="center"> <img width="1044" height="696" alt="image" src="https://github.com/user-attachments/assets/71967e0c-e5f7-40ef-b285-d52fa0e55a53"/>
 
 
 
 
 
-$$ \color{#b5a47b}{\huge \text {" 𝐀𝐘𝐎 𝐘𝐎 , 𝐘𝐀𝐋𝐋 𝐂𝐀𝐍𝐓 𝐒𝐓𝐀𝐍𝐃 𝐑𝚰𝐆𝐇𝐓 𝐇𝐄𝐑𝐄  ! " ✮⋆˙ }} $$
 
-<p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b1c5b88f-08be-4769-bef4-fffe4e4bf185" />
-<img width="131" height="75" alt="image" src="https://github.com/user-attachments/assets/a59c4ec0-924a-4dcf-b075-fac8246060b8" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e2c06bc7-cbd7-4d76-be21-df013c6ae1cf" />
+
+
+
+$$ \color{#c2c2c2}{\huge \text {" 𝐁𝐄𝐀𝐔𝐓𝐈𝐅𝐔𝐋 𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑 , 𝐂𝐀𝐓𝐂𝐇𝐈𝐍𝐆 𝐌𝐘 𝐒𝐓𝐀𝐑𝐄 . . .  ! " ✮⋆˙ }} $$
+
+
+<p align="center"> <img width="149" height="84" alt="image" src="https://github.com/user-attachments/assets/b7401b42-b4b6-4b65-8986-ce7aebb45930" /><img width="149" height="84" alt="image" src="https://github.com/user-attachments/assets/4041fac9-3049-48b9-9bce-567847331686" /><img width="149" height="84" alt="image" src="https://github.com/user-attachments/assets/7ce029e4-2f06-4537-9903-7350701c3606" />
+
+
+
+
+
+
 
 
 
@@ -61,7 +71,9 @@ $$ \color{#b5a47b}{\huge \text {" 𝐀𝐘𝐎 𝐘𝐎 , 𝐘𝐀𝐋𝐋 𝐂�
  
   
 
-<picture><img width="900" height="100" alt="image" src="https://github.com/user-attachments/assets/668e195e-9235-4e09-aba5-c9b87e33f4b3" />
+<picture><img width="1199" height="117" alt="image" src="https://github.com/user-attachments/assets/2dc529b1-f283-445b-95fa-b55b7f7a97df" />
 
 
-<picture><img width="1155" height="162" alt="image" src="https://github.com/user-attachments/assets/259e97f0-37b3-46f0-b61d-832cd59963ff" />
+
+
+<picture><img width="1280" height="152" alt="image" src="https://github.com/user-attachments/assets/cbbec5f1-50de-45de-b3e6-edbc0951b490" />
