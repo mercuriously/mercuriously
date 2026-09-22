@@ -1,44 +1,5 @@
 ## ☆
-<picture><img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/14d3a04c-e255-4991-904f-c526319df80d" />
-
-
-
-
-
-
-
-
-
-
-
-
-
-<p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/350c1b5f-6d38-4f23-9864-888117a571b2" />
-
-
-$$ \color{#b8b8b8}{\huge \text{𝐌𝐄𝐑𝐂𝐔𝐑𝐈𝐎𝐔𝐒𝐋𝐘 ☆ ⊹ ࣪}} $$
-
-
-
-$$ \color{#666666}{\huge \text{𝐒𝐇𝐄 / 𝐇𝐄 . 𝚰𝐍𝐅𝐎 𝚰𝐍 𝐒𝐓𝐑𝐀𝐖 . 𝚰𝐖𝐂 ⭑.ᐟ }} $$
-
-$$ \color{#e8e8e8}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
-
-
- <p align="center"> <img width="1044" height="696" alt="image" src="https://github.com/user-attachments/assets/71967e0c-e5f7-40ef-b285-d52fa0e55a53"/>
-
-
-
-
-
-
-
-
-
-$$ \color{#c2c2c2}{\huge \text {" 𝐁𝐄𝐀𝐔𝐓𝐈𝐅𝐔𝐋 𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑 , 𝐂𝐀𝐓𝐂𝐇𝐈𝐍𝐆 𝐌𝐘 𝐒𝐓𝐀𝐑𝐄 . . .  ! " ✮⋆˙ }} $$
-
-
-<p align="center"> <img width="149" height="84" alt="image" src="https://github.com/user-attachments/assets/b7401b42-b4b6-4b65-8986-ce7aebb45930" /><img width="149" height="84" alt="image" src="https://github.com/user-attachments/assets/4041fac9-3049-48b9-9bce-567847331686" /><img width="149" height="84" alt="image" src="https://github.com/user-attachments/assets/7ce029e4-2f06-4537-9903-7350701c3606" />
+<picture><img width="2047" height="122" alt="image" src="https://github.com/user-attachments/assets/fd785efd-2312-4a82-8a22-4c5a6e6e5bfd" />
 
 
 
@@ -53,6 +14,34 @@ $$ \color{#c2c2c2}{\huge \text {" 𝐁𝐄𝐀𝐔𝐓𝐈𝐅𝐔𝐋 𝐒𝐓�
 
 
 
+<p align="center"><img width="1500" height="15" alt="image" src="https://github.com/user-attachments/assets/2a69aad2-eb99-4b83-853b-1e275a1e0ed6" />
+
+
+
+$$ \color{#cc6247}{\huge \text{𝐌𝐄𝐑𝐂𝐔𝐑𝐈𝐎𝐔𝐒𝐋𝐘 ☆ ⊹ ࣪}} $$
+
+
+
+$$ \color{#f2f1d0}{\huge \text{𝐒𝐇𝐄 / 𝐇𝐄 . 𝚰𝐍𝐅𝐎 𝚰𝐍 𝐒𝐓𝐑𝐀𝐖 . 𝚰𝐖𝐂 ⭑.ᐟ }} $$
+
+$$ \color{#6f964d}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
+
+
+ <p align="center"><img width="1390" height="781" alt="image" src="https://github.com/user-attachments/assets/295f36a5-a76a-470e-84e2-092804cb1c1b" />
+
+
+
+
+
+
+
+
+
+
+$$ \color{#535da6}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 𝐈𝐒 𝐘𝐎𝐔𝐑 𝐋𝐎𝐕𝐄 , , ! " ✮⋆˙ }} $$
+
+
+<p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a47c1028-fa26-4863-95a3-3130dd7503e9" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ac6fcdd0-b81f-44bb-b7f7-e379f0c4efa5" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5db8ddd6-96db-4bb7-bd02-dc6c9e2cf8ec" />
 
 
 
@@ -64,16 +53,34 @@ $$ \color{#c2c2c2}{\huge \text {" 𝐁𝐄𝐀𝐔𝐓𝐈𝐅𝐔𝐋 𝐒𝐓�
 
 
 
-<p align="center"> <img width="385" height="29" alt="17855959449678198110892365186356" src="https://github.com/user-attachments/assets/f3ad611f-66cd-4fde-aae3-ce66ee066b80" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<p align="center"><img width="1500" height="15" alt="image" src="https://github.com/user-attachments/assets/fe589e6d-3dd2-4adf-805a-26bbc2ad8343" />
+
 
 
 <p align="center">
  
   
 
-<picture><img width="1199" height="117" alt="image" src="https://github.com/user-attachments/assets/2dc529b1-f283-445b-95fa-b55b7f7a97df" />
+<picture><img width="2048" height="246" alt="image" src="https://github.com/user-attachments/assets/4d11951a-be2b-4c52-995f-047a7d784530" />
 
 
 
 
-<picture><img width="1280" height="152" alt="image" src="https://github.com/user-attachments/assets/cbbec5f1-50de-45de-b3e6-edbc0951b490" />
+
