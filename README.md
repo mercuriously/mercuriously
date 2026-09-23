@@ -73,7 +73,8 @@ $$ \color{#4072c2}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 �
 
 
 
-<p align="center"><img width="1500" height="15" alt="image" src="https://github.com/user-attachments/assets/eaa9ad44-f824-44c1-856c-b0d853a2549d" />
+<p align="center"><img width="1000" height="10" alt="image" src="https://github.com/user-attachments/assets/1413498a-7b08-4fe7-b871-b62eaae11231" />
+
 
 
 
