@@ -83,11 +83,7 @@ $$ \color{#516694}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 �
 
 <picture><img width="2048" height="246" alt="image" src="https://github.com/user-attachments/assets/4d11951a-be2b-4c52-995f-047a7d784530" />
 
-<p align="center"><img width="1500" height="15" alt="image" src="https://github.com/user-attachments/assets/926a0ea9-40a9-4cb5-992e-8c494ced7295" />
-
-
-<p align="center"><img width="447" height="447" alt="image" src="https://github.com/user-attachments/assets/9a3d1f55-1f7f-463d-bef9-5591c66db2ee" />
-
+<picture><img width="2047" height="136" alt="image" src="https://github.com/user-attachments/assets/fdddb145-2e19-404d-ae80-9367da4b3943" />
 
 
 
