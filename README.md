@@ -73,7 +73,7 @@ $$ \color{#f0d22b}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 �
 
 
 
-<p align="center"><img width="1500" height="15" alt="image" src="https://github.com/user-attachments/assets/0c05052d-3c5d-44ad-abf8-83a63e03b321" />
+<p align="center"></picture><img width="1500" height="15" alt="image" src="https://github.com/user-attachments/assets/0c05052d-3c5d-44ad-abf8-83a63e03b321" />
 
 
 
@@ -90,7 +90,7 @@ $$ \color{#f0d22b}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 �
  
   
 
-<p align="center"><picture><img width="640" height="53" alt="image" src="https://github.com/user-attachments/assets/e9fee69f-5178-49c1-b618-3f5d32df92a4" />
+<picture><img width="2047" height="122" alt="image" src="https://github.com/user-attachments/assets/fd785efd-2312-4a82-8a22-4c5a6e6e5bfd" />
 
 
 
