@@ -47,15 +47,13 @@ $$ \color{#f2efae}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-<picture><img width="2048" height="131" alt="image" src="https://github.com/user-attachments/assets/35882c23-6e65-4eca-b5cb-fe514930b9f0" />
 
 
+$$ \color{#ffc2c8}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 𝐈𝐒 𝐘𝐎𝐔𝐑 𝐋𝐎𝐕𝐄 ! " ✮⋆˙ }} $$
 
 
-$$ \color{#ffc2c8}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 𝐈𝐒 𝐘𝐎𝐔𝐑 𝐋𝐎𝐕𝐄 , , ! " ✮⋆˙ }} $$
+<p align="center">
 
-
-<p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f43b666f-afb9-448c-98d4-cb4f3538a341" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7c818e17-5aaa-4c21-92b4-6455ac2655f9" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2bfe5ad2-5a48-4d4d-8860-b1c88b28829b" />
 
 
 
@@ -112,7 +110,7 @@ $$ \color{#ffc2c8}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 �
  
   
 
-<picture><img width="1500" height="150" alt="image" src="https://github.com/user-attachments/assets/5744114c-0d91-4141-9534-8a8c685a0f6f" />
+<picture><img width="1500" height="150" alt="image" src="https://github.com/user-attachments/assets/dce309f9-4211-49ec-835d-057b3e3e3c0c" />
 
 
 
