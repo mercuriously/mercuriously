@@ -47,7 +47,7 @@ $$ \color{#f2efae}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-<picture><p align="center"><img width="2048" height="131" alt="image" src="https://github.com/user-attachments/assets/35882c23-6e65-4eca-b5cb-fe514930b9f0" />
+<picture><img width="2048" height="131" alt="image" src="https://github.com/user-attachments/assets/35882c23-6e65-4eca-b5cb-fe514930b9f0" />
 
 
 
