@@ -91,7 +91,7 @@ $$ \color{#ffc2c8}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 �
 
 
 
-<p align="center"><img width="640" height="69" alt="image" src="https://github.com/user-attachments/assets/2f5b50df-bcde-4ca7-a09d-cd1c88a3cbd7" />
+<p align="center"><img width="640" height="69" alt="image" src="https://github.com/user-attachments/assets/8a98d94f-c3fd-416d-8be0-bd156917ce4f" />
 
 
 
