@@ -21,7 +21,7 @@
 
 
 
-<p align="center"><img width="640" height="69" alt="image" src="https://github.com/user-attachments/assets/8bd30b0a-3b21-486a-a055-418f41677c2e" />
+<p align="center"><img width="811" height="20" alt="image" src="https://github.com/user-attachments/assets/6529ac32-4b50-4d6c-8b23-ce0442a801f8" />
 
 
 
@@ -29,30 +29,16 @@
 
 
 
-$$ \color{#edfaff}{\huge \text{𝐌𝐄𝐑𝐂𝐔𝐑𝐈𝐎𝐔𝐒𝐋𝐘 ☆ ⊹ ࣪}} $$
+$$ \color{#bababa}{\huge \text{𝐌𝐄𝐑𝐂𝐔𝐑𝐈𝐎𝐔𝐒𝐋𝐘 ☆ ⊹ ࣪}} $$
 
 
 
-$$ \color{#b1dcf0}{\huge \text{𝐒𝐇𝐄 / 𝐇𝐄 . 𝚰𝐍𝐅𝐎 𝚰𝐍 𝐒𝐓𝐑𝐀𝐖 . 𝚰𝐖𝐂 ⭑.ᐟ }} $$
+$$ \color{#ffffff}{\huge \text{𝐒𝐇𝐄 / 𝐇𝐄 . 𝚰𝐍𝐅𝐎 𝚰𝐍 𝐒𝐓𝐑𝐀𝐖 . 𝚰𝐖𝐂 ⭑.ᐟ }} $$
 
-$$ \color{#f2efae}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
-
-
- <p align="center"><img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/d97c1e0b-6ac2-4b36-b914-82fc8c24c594" />
+$$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
 
-
-
-
-
-
-
-
-
-$$ \color{#ffc2c8}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 𝐈𝐒 𝐘𝐎𝐔𝐑 𝐋𝐎𝐕𝐄 ! " ✮⋆˙ }} $$
-
-
-<p align="center">
+ <p align="center"><img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/750006af-5228-4869-9a4a-87e39ccb6e82" />
 
 
 
@@ -64,34 +50,10 @@ $$ \color{#ffc2c8}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 �
 
 
 
+$$ \color{#ffffff}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 𝐈𝐒 𝐘𝐎𝐔𝐑 𝐋𝐎𝐕𝐄 ! " ✮⋆˙ }} $$
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<p align="center"><img width="640" height="69" alt="image" src="https://github.com/user-attachments/assets/8a98d94f-c3fd-416d-8be0-bd156917ce4f" />
+<p align =center><img width="811" height="20" alt="image" src="https://github.com/user-attachments/assets/cbd8a69e-1eda-4560-91b1-661883b175ad" />
 
 
 
