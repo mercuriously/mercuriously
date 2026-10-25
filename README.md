@@ -50,7 +50,7 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 𝐈𝐒 𝐘𝐎𝐔𝐑 𝐋𝐎𝐕𝐄 ! " ✮⋆˙ }} $$
+$$ \color{#ebebeb}{\huge \text {" 𝐀𝐋𝐋 𝐈𝐓 𝐂𝐎𝐒𝐓𝐒 𝐈𝐒 𝐘𝐎𝐔𝐑 𝐋𝐎𝐕𝐄  " ✮⋆˙ }} $$
 
 
 <p align =center><img width="811" height="20" alt="image" src="https://github.com/user-attachments/assets/cbd8a69e-1eda-4560-91b1-661883b175ad" />
