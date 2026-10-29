@@ -29,11 +29,11 @@
 
 
 
-$$ \color{#bababa}{\huge \text{𝑀𝐸𝑅𝒞𝒰𝑅𝐼𝒪𝒰𝒮𝐿𝒴 ☆ ⊹ ࣪}} $$
+$$ \color{#bababa}{\huge \text{𝐌𝐄𝐑𝐂𝐔𝐑𝚰𝐎𝐔𝐒𝐋𝐘 ☆ ⊹ ࣪}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text{𝒮𝐻𝐸 / 𝐻𝐸 . 𝐼𝒩𝐹𝒪 𝐼𝒩 𝒮𝒯𝑅𝒜𝒲 . 𝐼𝒲𝒞 ⭑.ᐟ }} $$
+$$ \color{#ebebeb}{\huge \text{𝐒𝐇𝐄 / 𝐇𝐄 . 𝚰𝐍𝐅𝐎 𝚰𝐍 𝐒𝐓𝐑𝐀𝐖 . 𝚰𝐖𝐂 ⭑.ᐟ }} $$
 
 $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
@@ -50,7 +50,7 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text {" 𝒯𝐻𝐸𝑅𝐸 𝐼𝒮 𝒲𝒪𝑀𝒜𝒩 𝐼𝒩 𝒮𝒪𝑀𝒜𝐿𝐼𝒜 .   " ✮⋆˙ }} $$
+$$ \color{#ebebeb}{\huge \text {" 𝐓𝐇𝐄𝐑𝐄 𝚰𝐒 𝐀 𝐖𝐎𝐌𝐀𝐍 𝚰𝐍 𝐒𝐎𝐌𝐀𝐋𝚰𝐀 . " ✮⋆˙ }} $$
 
 
 <p align =center><img width="811" height="20" alt="image" src="https://github.com/user-attachments/assets/cbd8a69e-1eda-4560-91b1-661883b175ad" />
