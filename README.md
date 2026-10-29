@@ -50,7 +50,7 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text {" 𝐓𝐇𝐄 𝐒𝐔𝐍 𝐆𝚰𝐕𝐄𝐒 𝐇𝐄𝐑 𝐍𝐎 𝐌𝐄𝐑𝐂𝐘 " ✮⋆˙ }} $$
+$$ \color{#ebebeb}{\huge \text {" 𝐌𝐑𝐒 𝐌𝐀𝐆𝚰𝐂 𝐓𝐎 𝐀𝐍𝐃 𝐅𝐑𝐎 , " ✮⋆˙ }} $$
 
 
 <p align =center><img width="811" height="20" alt="image" src="https://github.com/user-attachments/assets/cbd8a69e-1eda-4560-91b1-661883b175ad" />
