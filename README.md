@@ -29,16 +29,16 @@
 
 
 
-$$ \color{#bababa}{\huge \text{𝐌𝐄𝐑𝐂𝐔𝐑𝚰𝐎𝐔𝐒𝐋𝐘 ☆ ⊹ ࣪}} $$
+$$ \color{#bababa}{\huge \text{𝙼𝙴𝚁𝙲𝚄𝚁𝙸𝙾𝚄𝚂𝙻𝚈 ☆ ⊹ ࣪}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text{𝐒𝐇𝐄 / 𝐇𝐄 . 𝚰𝐍𝐅𝐎 𝚰𝐍 𝐒𝐓𝐑𝐀𝐖 . 𝚰𝐖𝐂 ⭑.ᐟ }} $$
+$$ \color{#ebebeb}{\huge \text{𝚂𝙷𝙴 / 𝙷𝙴 . 𝙸𝙽𝙵𝙾 𝙸𝙽 𝚂𝚃𝚁𝙰𝚆 . 𝙸𝚆𝙲 ⭑.ᐟ }} $$
 
 $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
 
- <p align="center"><img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/750006af-5228-4869-9a4a-87e39ccb6e82" />
+ <p align="center"><img width="1271" height="732" alt="image" src="https://github.com/user-attachments/assets/e5e361d1-6051-446e-b25a-2f625a831029" />
 
 
 
@@ -50,7 +50,7 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text {" 𝐌𝐑𝐒 𝐌𝐀𝐆𝚰𝐂 𝐓𝐎 𝐀𝐍𝐃 𝐅𝐑𝐎 , " ✮⋆˙ }} $$
+$$ \color{#ebebeb}{\huge \text {" 𝚃𝙴𝙻𝙻 𝙼𝙴 𝚃𝙾 𝙶𝚁𝙾𝚆 𝚆𝙸𝙽𝙶𝚂 , " ✮˙ }} $$
 
 
 <p align =center><img width="811" height="20" alt="image" src="https://github.com/user-attachments/assets/cbd8a69e-1eda-4560-91b1-661883b175ad" />
