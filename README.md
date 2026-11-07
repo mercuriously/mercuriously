@@ -1,5 +1,5 @@
 ## ☆ 🗯 ☆ 
-<picture><img width="1500" height="150" alt="image" src="https://github.com/user-attachments/assets/1ab8a1de-bdcb-489d-b9f8-77fc26b40a06" />
+<picture><img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/42a543f5-7bc3-452e-bdac-65a1848a86f6" />
 
 
 
@@ -21,7 +21,12 @@
 
 
 
-<p align="center"><img width="811" height="20" alt="image" src="https://github.com/user-attachments/assets/6529ac32-4b50-4d6c-8b23-ce0442a801f8" />
+
+
+
+
+<p align="center"><img width="640" height="26" alt="image" src="https://github.com/user-attachments/assets/7a42e331-6ba4-49c7-9b29-bdf166481fe1" />
+
 
 
 
@@ -53,7 +58,8 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 $$ \color{#ebebeb}{\huge \text {" 𝚃𝙴𝙻𝙻 𝙼𝙴 𝚃𝙾 𝙶𝚁𝙾𝚆 𝚆𝙸𝙽𝙶𝚂 , " ✮˙ }} $$
 
 
-<p align =center><img width="811" height="20" alt="image" src="https://github.com/user-attachments/assets/cbd8a69e-1eda-4560-91b1-661883b175ad" />
+<p align =center><img width="640" height="26" alt="image" src="https://github.com/user-attachments/assets/be11dc64-c895-43a9-b608-22313a371fbe" />
+
 
 
 
@@ -71,8 +77,10 @@ $$ \color{#ebebeb}{\huge \text {" 𝚃𝙴𝙻𝙻 𝙼𝙴 𝚃𝙾 𝙶𝚁�
 
  
   
+<p align =center><picture><img width="640" height="58" alt="image" src="https://github.com/user-attachments/assets/b7f54920-a1d8-409e-b21c-ac014416aa20" />
 
-<picture><img width="1500" height="150" alt="image" src="https://github.com/user-attachments/assets/dce309f9-4211-49ec-835d-057b3e3e3c0c" />
+
+
 
 
 
