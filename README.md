@@ -77,7 +77,8 @@ $$ \color{#ebebeb}{\huge \text {" 𝚃𝙴𝙻𝙻 𝙼𝙴 𝚃𝙾 𝙶𝚁�
 
  
   
-<p align =center><picture><img width="640" height="58" alt="image" src="https://github.com/user-attachments/assets/b7f54920-a1d8-409e-b21c-ac014416aa20" />
+<p align =center><picture><img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/d9a4d150-bf2a-450e-b6db-a2186974f040" />
+
 
 
 
