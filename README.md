@@ -85,18 +85,6 @@ $$ \color{#ebebeb}{\huge \text {" 𝗍ᥱᥣᥣ mᥱ 𝗍᥆ gr᥆ᥕ ᥕіᥒgs
 
 
 
-## ☆ 🎱 ☆
 
 
 
-
-
-<p align =center><img width="1280" height="1280" alt="Untitled4544_20261112093216" src="https://github.com/user-attachments/assets/cafd2af3-57b1-4c24-a258-9f68868b3e77" />
-
-
-
-
-
-$$ \color{#ebebeb}{ \huge \text { і ᥴᥲᥒ𝗍 rᥱsіzᥱ 𝗍һіs }} $$
-
-$$ \color{#ebebeb}{ \huge \text { іm s᥆ 𝖿ᥙᥴkіᥒg s᥆rrᥡ  }} $$
