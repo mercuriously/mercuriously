@@ -34,11 +34,11 @@
 
 
 
-$$ \color{#bababa}{\huge \text{𝑀𝐸𝑅𝐶𝑈𝑅𝐼𝑂𝑈𝑆𝐿𝑌  ☆ ⊹ ࣪}} $$
+$$ \color{#bababa}{\huge \text{mᥱrᥴᥙrі᥆ᥙsᥣᥡ ☆ ⊹ ࣪}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text{ 𝑆𝐻𝐸 / 𝐻𝐸 . 𝐼𝑁𝐹𝑂 𝐼𝑁 𝑆𝑇𝑅𝐴𝑊 . 𝐼𝑊𝐶 ⭑.ᐟ }} $$
+$$ \color{#ebebeb}{\huge \text{ sһᥱ / һᥱ . іᥒ𝖿᥆ іᥒ s𝗍rᥲᥕ . іᥕᥴ ⭑.ᐟ }} $$
 
 $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
@@ -55,7 +55,7 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text {" 𝑇𝐸𝐿𝐿 𝑀𝐸 𝑇𝑂 𝐺𝑅𝑂𝑊 𝑊𝐼𝑁𝐺𝑆  , " ✮˙ }} $$
+$$ \color{#ebebeb}{\huge \text {" 𝗍ᥱᥣᥣ mᥱ 𝗍᥆ gr᥆ᥕ ᥕіᥒgs  , " ✮˙ }} $$
 
 
 <p align =center><img width="640" height="26" alt="image" src="https://github.com/user-attachments/assets/be11dc64-c895-43a9-b608-22313a371fbe" />
@@ -94,6 +94,6 @@ $$ \color{#ebebeb}{\huge \text {" 𝑇𝐸𝐿𝐿 𝑀𝐸 𝑇𝑂 𝐺𝑅�
 
 
 
-$$ \color{#ebebeb}{ \huge \text { 𝑖 𝑐𝑎𝑛'𝑡 𝑟𝑒𝑠𝑖𝑧𝑒 𝑡ℎ𝑖𝑠  }} $$
+$$ \color{#ebebeb}{ \huge \text { і ᥴᥲᥒ𝗍 rᥱsіzᥱ 𝗍һіs }} $$
 
-$$ \color{#ebebeb}{ \huge \text { 𝑖𝑚 𝑠𝑜 𝑓𝑢𝑐𝑘𝑖𝑛𝑔 𝑠𝑜𝑟𝑟𝑦   }} $$
+$$ \color{#ebebeb}{ \huge \text { іm s᥆ 𝖿ᥙᥴkіᥒg s᥆rrᥡ  }} $$
