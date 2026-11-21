@@ -50,9 +50,8 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
+$$\color{#707070}\huge \text{" ⍴ᥱr}\color{#9c9c9c}\text{һᥲ⍴s}\color{#dbdbdb}\text{ і ᥕᥲs}\color{#c4c4c4}\text{ 𝗍᥆᥆}\color{#9c9c9c}\text{ іᥒᥴ᥆r}\color{#707070} \text{rіgіᑲᥣᥱ  "} $$
 
-
-$$\color{#707070}\huge \text{" ⍴ᥱrһᥲ⍴s }\color{#9c9c9c}\text{і}\color{#dbdbdb}\text{  ᥕᥲs}\color{#9c9c9c}\text{ 𝗍᥆᥆ }\color{#707070}\text{іᥒᥴ᥆rrіgіᑲᥣᥱ  } $$
 
 <p align =center><img width="640" height="26" alt="image" src="https://github.com/user-attachments/assets/be11dc64-c895-43a9-b608-22313a371fbe" />
 
