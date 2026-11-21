@@ -30,16 +30,12 @@
 
 
 
+$$\color{#707070}\huge \text{mᥱr}\color{#9c9c9c}\text{ᥴᥙr}\color{#dbdbdb}\text{і᥆ᥙ}\color{#9c9c9c}\text{sᥣ}\color{#707070}\text{ᥡ}\color{#707070} \text{ ☆ ⊹ ࣪} $$
 
 
+$$\color{#707070}\huge \text{ sһᥱ}\color{#9c9c9c}\text{/ һᥱ}\color{#dbdbdb}\text{. іᥒ𝖿᥆ іᥒ s𝗍rᥲᥕ}\color{#9c9c9c}\text{. іᥕᥴ }\color{#707070}\text{⭑.ᐟ } $$
 
 
-
-$$ \color{#bababa}{\huge \text{mᥱrᥴᥙrі᥆ᥙsᥣᥡ ☆ ⊹ ࣪}} $$
-
-
-
-$$ \color{#ebebeb}{\huge \text{ sһᥱ / һᥱ . іᥒ𝖿᥆ іᥒ s𝗍rᥲᥕ . іᥕᥴ ⭑.ᐟ }} $$
 
 $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
@@ -56,8 +52,7 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text {" 𝗍һᥱ ᥕ᥆rᥣძ іs ᥴrᥙᥱᥣ; 𝗍һᥱrᥱ𝖿᥆rᥱ і ᥕ᥆ᥒ𝗍 ᑲᥱ , " ✮˙ }} $$
-
+$$\color{#707070}\huge \text{" 𝗍һᥱ ᥕ᥆rᥣძ }\color{#9c9c9c}\text{іs ᥴrᥙᥱᥣ;}\color{#dbdbdb}\text{ 𝗍һᥱrᥱ𝖿᥆rᥱ і}\color{#9c9c9c}\text{ ᥕ᥆ᥒ𝗍 ᑲᥱ }\color{#707070}\text{" ✮˙  } $$
 
 <p align =center><img width="640" height="26" alt="image" src="https://github.com/user-attachments/assets/be11dc64-c895-43a9-b608-22313a371fbe" />
 
