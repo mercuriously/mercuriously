@@ -1,5 +1,6 @@
 ## ☆ 🗯 ☆ 
-<p align =center><picture><img width="736" height="174" alt="image" src="https://github.com/user-attachments/assets/7f97ad89-304a-49d0-a67e-4c6b2ff29e95" />
+
+<p align =center><picture><img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/97115ddd-c5d6-4177-9b6e-bee81302fda4" />
 
 
 
@@ -67,7 +68,6 @@ $$\color{#707070}\huge \text{" ⍴ᥱr}\color{#9c9c9c}\text{һᥲ⍴s}\color{#db
  
   
 <p align =center><picture><img width="2048" height="248" alt="image" src="https://github.com/user-attachments/assets/853585a8-e185-4d1d-91ef-34547c5f680e" />
-
 
 
 
