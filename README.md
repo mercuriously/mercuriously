@@ -66,7 +66,7 @@ $$\color{#707070}\huge \text{" ⍴ᥱr}\color{#9c9c9c}\text{һᥲ⍴s}\color{#db
 
  
   
-<p align =center><picture><img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/d9a4d150-bf2a-450e-b6db-a2186974f040" />
+<p align =center><picture><img width="2048" height="248" alt="image" src="https://github.com/user-attachments/assets/853585a8-e185-4d1d-91ef-34547c5f680e" />
 
 
 
