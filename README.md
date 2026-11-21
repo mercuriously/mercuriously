@@ -35,7 +35,7 @@
 
 
 
-$$ \color{#bababa}{\huge \text{mᥱrᥴᥙrі᥆ᥙsᥣᥡ ☆ ⊹ ࣪}} $$
+$$ \color{#bababa}{\huge \text{mᥱrᥴᥙr }} $$ \color {#707070}{\huge \text{᥆ᥙsᥣᥡ ☆ ⊹ ࣪}}
 
 
 
