@@ -56,7 +56,7 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-$$ \color{#ebebeb}{\huge \text {" іm s᥆ s᥆rrᥡ 𝗍һᥲ𝗍 𝗍һᥱᥡ ⍴іᥴk ᥡ᥆ᥙ ᥣᥲs𝗍  , " ✮˙ }} $$
+$$ \color{#ebebeb}{\huge \text {" 𝗍һᥱ ᥕ᥆rᥣძ іs ᥴrᥙᥱᥣ; 𝗍һᥱrᥱ𝖿᥆rᥱ і ᥕ᥆ᥒ𝗍 ᑲᥱ , " ✮˙ }} $$
 
 
 <p align =center><img width="640" height="26" alt="image" src="https://github.com/user-attachments/assets/be11dc64-c895-43a9-b608-22313a371fbe" />
