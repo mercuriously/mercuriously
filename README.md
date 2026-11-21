@@ -52,15 +52,9 @@ $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$
 
 
 
-$$\color{#707070}\huge \text{" 𝗍һᥱ ᥕ᥆rᥣძ }\color{#9c9c9c}\text{іs ᥴrᥙᥱᥣ;}\color{#dbdbdb}\text{ 𝗍һᥱrᥱ𝖿᥆rᥱ і}\color{#9c9c9c}\text{ ᥕ᥆ᥒ𝗍 ᑲᥱ }\color{#707070}\text{" ✮˙  } $$
+$$\color{#707070}\huge \text{" ⍴ᥱrһᥲ⍴s }\color{#9c9c9c}\text{і}\color{#dbdbdb}\text{  ᥕᥲs}\color{#9c9c9c}\text{ 𝗍᥆᥆ }\color{#707070}\text{іᥒᥴ᥆rrіgіᑲᥣᥱ  } $$
 
 <p align =center><img width="640" height="26" alt="image" src="https://github.com/user-attachments/assets/be11dc64-c895-43a9-b608-22313a371fbe" />
-
-
-
-
-
-
 
 
 
