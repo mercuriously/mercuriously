@@ -40,7 +40,8 @@ $$\color{#707070}\huge \text{ sһᥱ}\color{#9c9c9c}\text{/ һᥱ}\color{#dbdbdb
 $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
 
- <p align =center><img width="734" height="500" alt="OG Anunoby dunk" src="https://github.com/user-attachments/assets/20627359-436e-4d02-bd5e-5fb31f484f11" />
+ <p align =center><img width="980" height="653" alt="shared_image" src="https://github.com/user-attachments/assets/44babfc7-498b-4306-844a-e81ab22fa083" />
+
 
 
 
