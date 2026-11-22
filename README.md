@@ -40,7 +40,7 @@ $$\color{#707070}\huge \text{ sһᥱ}\color{#9c9c9c}\text{/ һᥱ}\color{#dbdbdb
 $$ \color{#bababa}{ \huge \text{-₊✩‧₊˚౨ৎ˚₊✩‧₊-}} $$ 
 
 
- <p align =center><img width="588" height="393" alt="shared_image" src="https://github.com/user-attachments/assets/1fc18a65-c192-4d76-a1ce-d741a0af56e0" />
+ <p align =center><img width="2048" height="1152" alt="shared_image" src="https://github.com/user-attachments/assets/abd5eae0-fcb2-4d49-a878-ca924f5edfed" />
 
 
 
