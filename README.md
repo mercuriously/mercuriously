@@ -33,7 +33,7 @@
 $$\color{#707070}\huge \text{mᥱr}\color{#9c9c9c}\text{ᥴᥙr}\color{#dbdbdb}\text{і᥆ᥙ}\color{#9c9c9c}\text{sᥣ}\color{#707070}\text{ᥡ}\color{#707070} \text{ ☆ ⊹ ࣪} $$
 
 
-$$\color{#707070}\huge \text{ sһᥱ}\color{#9c9c9c}\text{/ һᥱ}\color{#dbdbdb}\text{. іᥒ𝖿᥆ іᥒ s𝗍rᥲᥕ}\color{#9c9c9c}\text{. іᥕᥴ }\color{#707070}\text{⭑.ᐟ } $$
+$$\color{#707070}\huge \text{ sһᥱ}\color{#9c9c9c}\text{ / һᥱ}\color{#dbdbdb}\text{. іᥒ𝖿᥆ іᥒ s𝗍rᥲᥕ}\color{#9c9c9c}\text{. іᥕᥴ }\color{#707070}\text{⭑.ᐟ } $$
 
 
 
